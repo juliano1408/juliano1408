@@ -1,6 +1,6 @@
 ### Hi there, I'm Juliano Nascimento 👋
 
-## I'm a Husband, Father, Developer aprendi, and a Student!!
+## I'm a Husband, Father, Developer, and a Student!!
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
